@@ -17,5 +17,5 @@
 
 
 ## 📫 Connect With Me
-- LinkedIn: [)  
+- Linkedin: ( https://www.linkedin.com/in/yash-deogirkar-03091777ypd/ ) 
 - Email: yashdeogirkar.work@gmail.com
